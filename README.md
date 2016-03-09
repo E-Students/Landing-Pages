@@ -11,7 +11,7 @@ All 5'A Landing Pages
 
 5.Mameli Alessio
 
-6.Monni Giacomo
+6.Monni Giacomo : [Plettri] (http://pick-0.launchrock.com)
 
 7.Moricio Matteo : [Casse acustiche] (http://e-speakers.launchrock.com/)
 
