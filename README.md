@@ -1,7 +1,7 @@
 # Landing-Pages
 All 5'A Landing Pages
 
-1.Addis Gianluca [Concerto foo fighters] (http://foo-fighters.launchrock.com/)
+1.Addis Gianluca : [Concerto foo fighters] (http://foo-fighters.launchrock.com/)
 
 2.Bianco Gianluca
 
