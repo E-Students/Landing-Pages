@@ -21,7 +21,7 @@ All 5'A Landing Pages
 
 10.Portas Michele
 
-11.Serrau Valentina
+11.Serrau Valentina : [Hard Disk Esterno] (http://hard-disk-esterno-1.launchrock.com/?_ga=1.119813448.1733778740.1455297193)
 
 12.Siddi Carlotta : [Tazze personalizzate](http://tazze-personalizzate.launchrock.com/)
 
